@@ -1,1 +1,2 @@
-# kelana-landingpage
+# Kelana—Home
+Maize (/meɪz/ MAYZ; Zea mays subsp. mays, from Spanish: maíz after Taino: mahiz), also known as corn (North American and Australian English), is a cereal grain first domesticated by indigenous peoples in southern Mexico about 10,000 years ago. The leafy stalk of the plant produces pollen inflorescences (or "tassels") and separate ovuliferous inflorescences called ears that when fertilized yield kernels or seeds, which are fruits.
